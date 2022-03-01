@@ -42,5 +42,6 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
   
 ### Contact Us  
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.  
-Contact Information:  
-Email: kimlong.chhiv8@gmail.com
+Contact Information: +85523884242
+Email: info@positronmultiverse.com
+Address: #05, street 604, beng kok ii, phnom penh, cambodia
